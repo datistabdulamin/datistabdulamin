@@ -6,4 +6,4 @@
 
 💞️ I’m looking to collaborate on projects that involve predictive modeling, data-driven optimization, or actionable insights generation.
 
-📫 You can reach me via email: datistabdulamin@gmail.com or LinkedIn: linkedin.com/in/abdullah-amin-0725722b5
+📫 You can reach me via email: datistabdulamin@gmail.com or linkedin.com/in/abdullah-amin-0725722b5
